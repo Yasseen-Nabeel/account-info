@@ -1,6 +1,7 @@
-# 👋 Hi, I'm Yasseen Nabeel
+# 👋السلام عليكم 
+, I'm Yasseen Nabeel
 
-### Chemical Engineer | Interdisciplinary Professional | Dedicated & Adaptable
+### Chemical Engineer | Interdisciplinary Professional | Research Assistant
 
 --- 
 
